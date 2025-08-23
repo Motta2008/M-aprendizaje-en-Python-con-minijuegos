@@ -1,0 +1,1 @@
+Esta carpeta es aparte de mi aprendizaje en mí curso, ya que es lo que aprendi en el SENA con mí docente Liliana Uribe
